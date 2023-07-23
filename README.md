@@ -1,2 +1,4 @@
 # ALL-REQUIREMENTS-FOR-GORILLA-TAG-MODS
 These are all the requirements for gorilla tag mods
+
+YOU NEED A VR HEADSET FOR THIS AND GORILLA TAG ON STEAM FOR 20$
